@@ -1,3 +1,3 @@
-# <Homenagem - Batman style="text-align:center;"/>
+# Homenagem - Batman
 
 Page para portfólio (Homenagem) 
